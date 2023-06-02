@@ -1,4 +1,4 @@
-👋 Hello! I'm a computer science student passionate about coding and development. 💻
+👋 Hello! I'm Ben aissou Belaid a computer science student passionate about coding and development. 💻
 
 🎓 Currently pursuing a degree in computer science, I am always seeking new knowledge and exciting challenges. I'm eager to learn cutting-edge technologies and contribute to innovative projects. 🌟
 
